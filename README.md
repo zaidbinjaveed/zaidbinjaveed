@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zaidbinjaveed
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...AI & ML
 - 🌱 I’m currently learning ...blockchain development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...https://www.instagram.com/zaidbinjaveed?igsh=ODd4c3dieHd3ZnM2
